@@ -1,0 +1,1 @@
+# pusula_seyahat_rehberi
